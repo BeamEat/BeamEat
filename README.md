@@ -2,7 +2,7 @@
 - 👀 I’m interested in: Learning, Because I know absolutely nothing at this point
 - 🌱 I’m currently learning: EVERYTHING
 - 💞️ I’m looking to collaborate on: Intership
-- 📫 How to Reach me: Send me a DM!
+- 📫 How to Reach me: Send me a DM or a Email! workpedrojob@gmail.com
 - 😄 Pronouns: He/She/They, I don't have any problem with another pronoun
 - ⚡ Fun fact: I'm desperate to learn
 
