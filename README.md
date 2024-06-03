@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BeamEat
+- 👋 Hi, I’m Pedro! (Or Beam)
 - 👀 I’m interested in: Learning, Because I know absolutely nothing at this point
 - 🌱 I’m currently learning: EVERYTHING
 - 💞️ I’m looking to collaborate on: Intership
